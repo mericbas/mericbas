@@ -4,4 +4,4 @@ I have a strong foundation in various programming languages including C#, Python
 I am dedicated to enhancing my skills through constant practice and real-world application.
 I’m interested in collaborating on innovative software projects and contributing to the open-source community. 
 
-You can reach me at mericbas0@gmail.com.
+You can reach me at mericbas0@gmail.com mail adress.
